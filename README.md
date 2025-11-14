@@ -1,1 +1,0 @@
-# Gen_Alpha_Translator-AP
